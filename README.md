@@ -1,4 +1,4 @@
-# Hi, I'm [Your Name] 👋
+# Hi, I'm Vince Ando 👋
 
 ## Cybersecurity Student | Aspiring Security Professional
 
